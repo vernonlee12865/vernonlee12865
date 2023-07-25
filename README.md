@@ -5,6 +5,6 @@
 - 📫 How to reach me ...
 
 <!---
-vernonlee12865/vernonlee12865 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+vernonlee12865/vernonlee12865 is a ✨ special ✨ repozxczxczxcsitory because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview likjnk to take a look at your changes.
 --->
