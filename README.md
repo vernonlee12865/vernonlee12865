@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @vernonlee12865
-- 👀 I’m interested in ...іфч
+- 👀 Ixvc’m interested in ...іфчdasd
 - 🌱 I’m currently learning ...asdcxz
 - 💞️ I’m looking to collaborate on ...ascxzc
 - 📫 How to reach mefgb
