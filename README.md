@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @vernonlee12865
 - 👀 Ixvc’m interested in ..sd.іфчdasd
 - 🌱 I’m currently learning ...asdcxz
-- 💞️ I’m looking to collaborate on ...ascxzc
+- 💞️ I’m looking to cobgdllaborate on ...ascxzc
 - 📫 How to reach mefgbxzc
 <!---ascadczxc
 vernonlee12865/vernonlee12865 is a ✨ special ✨ repozxczxczxcsitory because its `README.md` (this file) appears on your GitHub profile.
