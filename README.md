@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @vernonlee12865fdвфіівафівавяfsdfsdfdsfsd
 - 👀 Ixvc’m interested inasdzvcxv ..sd.іфчdasd
-- 🌱 I’m currently lecarning ...asdcxz
+- 🌱 I’m currently lecarning ...asdcxsxzcz
 - 💞️ I’m looking to cobgdllabasforatse on ...ascxzccxvxcvxcv
 - 📫 How to reach mefgbxzcacxzcasc
 <!---ascadczxcsdavfvcxv
