@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @vernonlee12865fdвфіівафівавяfsdfsdfdsfsd
-- 👀 Ixvc’m interested inasdzvcxv ,mn..xdfgfgdxsd.іфчdasdмячсмячсм
+- 👀 Ixvc’m interested inasdzvcxv ,mn..xdfgfgdxsd.іфчdasdмячсмячсмsdasd
 - 🌱 I’m currently lecarning .cvb..asdcxsxzcjgf ...ascxzccxvxcvxcvsad
 - 📫 How to reach mefgbxzcacxzcasc
 <!---ascadczxcsdavfvcxv
