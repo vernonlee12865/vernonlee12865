@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @vennbrnonlee12865fdвфіівафівавяfsdfsdfdsfsd
 - 👀 Ixvc’m interested inasdzvcxv ,mn..xdfgfgdxsd.іфчdasdмячсмячсмsdasd
-- 🌱 I’m currently lecarning .cvb..asdcxsxzcjgf ...ascxzccxvxcvxcvsadвіамсчим
+- 🌱 I’m currently lecarning .cvb..asdcxsxzxcvccjgf ...ascxzccxvxcvxcvsadвіамсчим
 - 📫 How to reach mefgbxzcacxzcasc
 <!---ascadczxcsdavfvcxv
 vernonlee12865/verngdfonlee1286gfd5 cxzis a ✨ special ✨ repozxczxczxcsitory because its `README.md` (this file) appears on your GitHub profile.
