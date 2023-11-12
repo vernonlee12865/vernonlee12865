@@ -1,4 +1,4 @@
-- 👋 Hi, I’m sadscxvcxv@vennbrnonlee12865fdвфііhghgjвsadsафівавяfsіфвчясdfsdfdsfsdghjc gh
+- 👋 Hi, I’m sadscxvcxv@vennbrnonlee12865fdвфііhghgjвsadsафівавяfsіфвчясdfsdfdsfsdghjc ghsadasd
 - 👀 Ixvc’m interesteghfinasvvvcxіфвcvxdzvcxvaduvlkgs ,mn..xdfgfgdxsd.іфчdasdмячсмячсмsdasdsdxz
 - 🌱 I’m currently lecarningasdczx .cvb..asdcxsxzxcvccjgf ...ascxzccxvxcvxcvsadвіамсчим
 - 📫 How to reach mefgbxzcacxzcasc
