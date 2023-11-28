@@ -1,5 +1,5 @@
 - 👋 Hi, I’m jhhsadscxvcxv@vennbrnonlee12865fdвbmkbфііhghgjвsadsафівавяfsіфвчясdfsdfdsfsdghjchkb ghsadasdsadhj
-- 👀 Ixvc’m dsfsdinteresteghfinasvasdsadvvcxіфвcvxdzvcxvaduvlkgs ,mn..xdfgfgdxsd.іфчdasdмячсмячолсмнлsadsфівчяссячadлsdasdsdxz
+- 👀 Ixvc’m dsfsdinteresteghfinasvasdsadvvcxіфвcvxdzvcxvaduфівфівфvlkgs ,mn..xdfgfgdxsd.іфчdasdмячсмячолсмнлsadsфівчяссячadлsdasdsdxz
 - 🌱 I’m currently lecarningasdczx vghhv.cvb..asdcxsxzxcvccjgf ...ascxzccxvxcvxcvsadвіамсчим
 - 📫 How to reach mefgbxzcacxzcasc
 <!---ascadczxcsdavfvcxv
