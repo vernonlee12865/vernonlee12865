@@ -1,4 +1,4 @@
-- 👋 Hi, I’m zzxzxzxzxzxzxzjhhsadscxvcxv@vennbrnonlee12865fdвbmkbфііhghgjвsadsафівавяfsіфвчясdfsdfdshffsdghjchkb ghsadasdsadhj
+- 👋 Hi, I’m zzxzxzxzxzxzxzjhhsadscxvcxv@vennbrnonlee12865fdвbmkbфііhghgjвsadsафівавяfsіфвчясdfsdfdshffsdghjchkb ghsadasdsadhjasdczxc
 - 👀 Ixvc’m dsfsdinteresteghfinasvasdsadvvcxіфвcvxdzvcxvaduфівфівфvlkgs ,mn..xdfgfgdxsd.іфчdasdмячсмячолсмнлsadsфівчяссячadлsdasdsdxz
 - 🌱 I’m currently lecarningasdczx vghhv.cvb..asdcxsxzxcvccjgf ...ascxzccxvxcvxcvsadвіамсчим
 - 📫 How to reach mefgbxzcacxzcasc
